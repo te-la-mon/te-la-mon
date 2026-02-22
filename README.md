@@ -17,15 +17,15 @@
 
 ⠀⠀⠀ ݃ ֪֪֪ ̣̣
 #  ׁ⠀⠀#⠀⠀B⠀⠀Y⠀⠀I
-cudcomf friendly!! it makes us feel less lonely if u come sit with us *sniffles* w2i are welcomed!💗 feel free to be green names too!
+cudcomf cudcomf!! it makes us feel less lonely if u come sit with us as long as we don't have 'dni' on the name *sniffles* feel free to be green names too!
 
 before anything else, we kindly ask that you learn a bit about systems before interacting. this isn’t about being “quirky” or “cool”, it’s a real disorder that can affect identity, relationships, and daily life. if you’re unsure, please read our rentry before making assumptions.
 
-if you'd like to interact with us.. please feel free to do so unless we're on DND. We rarely approach first until we grow comfortable! our system may mask often since we aren’t very open about our plurality unless we feel comfortable or you’re a system yourself. it’s usually easier for us to open up once we feel safe.
+if you'd like to interact with us.. please feel free to do so. If we're on DND then iwc! it's someone else playing. We rarely approach first until we grow comfortable! our system may mask often since we aren’t very open about our plurality unless we feel comfortable or you’re a system yourself. it’s usually easier for us to open up once we feel safe.
 
-if you’re curious, feel free to politely ask who’s fronting! (otherwise it's just masking) it helps avoid confusion and lets you get to know us better. please don’t assume the person fronting is the same as the skin or character being used. ^_^
+if you’re curious, feel free to politely ask who’s fronting! (otherwise it's just masking, maybe.) it helps avoid confusion and lets you get to know us better. please don’t assume the person fronting is the same as the skin or character being used. ^_^
 
-we tend to mirror the energy we’re given, we might seem shy or awkward at first, or maybe the opposite but we love making new friends!! 
+some of us tends to mirror the energy we’re given, we might seem shy or awkward at first, or maybe the opposite but we love making new friends!! it just takes time, trust trust.
 
 we also struggle with attachment and detachment issues :( sometimes we may distance ourselves or go quiet for a while. please don’t take it to heart, it’s never personal. 
 
