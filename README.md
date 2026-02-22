@@ -42,4 +42,4 @@ ships are fine!! as long as they aren't weird, problematic and forced on us.
 
 flirtig is a meh. as long as they are jokes! roleplays on the other hand.. please don't do that out of the blue. it's weird.. 
 
-check our rentry for more info, follow our main!! I’m k, by the way! (im so sorry for all the times I've lost aura in front of everyone)
+check our rentry for more info, follow our main!! I’m k, by the way! we're cool i promise I even draw :plead (im so sorry for all the times I've lost aura in front of everyone)
