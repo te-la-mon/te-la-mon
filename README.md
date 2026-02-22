@@ -9,15 +9,15 @@
 
 <br>
 
-⠀⠀⠀⠀⠀<i>'cause you're⠀⠀s t u c k  
-⠀⠀⠀⠀⠀⠀to the⠀⠀g r o u n d  
-⠀⠀⠀⠀⠀⠀you have to ⠀⠀s t a y.</i>
+⠀⠀⠀⠀⠀<i>'cause ⠀you're⠀⠀s t u c k  
+⠀⠀⠀⠀⠀⠀to ⠀the⠀⠀g r o u n d  
+⠀⠀⠀⠀⠀⠀you ⠀have⠀ to ⠀⠀s t a y.</i>
 
 <img width="402" height="504" alt="Untitled49_20260222134517" src="https://github.com/user-attachments/assets/8f2dccf2-b823-4640-bdca-8d4a409772d7" align="right"/>
 
 ⠀⠀⠀ ݃ ֪֪֪ ̣̣
 #  ׁ⠀⠀#⠀⠀B⠀⠀Y⠀⠀I
-cudcomf friendly!! it makes us feel less lonely if u come sit with us *sniffles* w2i are welcomed!💗
+cudcomf friendly!! it makes us feel less lonely if u come sit with us *sniffles* w2i are welcomed!💗 feel free to be green names too!
 
 before anything else, we kindly ask that you learn a bit about systems before interacting. this isn’t about being “quirky” or “cool”, it’s a real disorder that can affect identity, relationships, and daily life. if you’re unsure, please read our rentry before making assumptions.
 
