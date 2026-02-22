@@ -13,7 +13,7 @@
 ⠀⠀⠀⠀⠀⠀to the⠀⠀g r o u n d  
 ⠀⠀⠀⠀⠀⠀you have to ⠀⠀s t a y.</i>
 
-<img width="402" height="504" alt="Untitled49_20260222134517" src="https://github.com/user-attachments/assets/8f2dccf2-b823-4640-bdca-8d4a409772d7" />
+<img width="402" height="504" alt="Untitled49_20260222134517" src="https://github.com/user-attachments/assets/8f2dccf2-b823-4640-bdca-8d4a409772d7" align="right"/>
 
 ⠀⠀⠀ ݃ ֪֪֪ ̣̣
 #  ׁ⠀⠀#⠀⠀B⠀⠀Y⠀⠀I
@@ -29,7 +29,9 @@ we tend to mirror the energy we’re given, we might seem shy or awkward at firs
 
 we also struggle with attachment and detachment issues :( sometimes we may distance ourselves or go quiet for a while. please don’t take it to heart, it’s never personal. 
 
-<img width="402" height="504" alt="Untitled47_20260221193810" src="https://github.com/user-attachments/assets/203fa92d-c818-4e89-86c9-5e78987f3524" align="right"/>
+if you're willing to be patient and understanding.. maybe be our friend if you're interested! ^w^
+
+<img width="402" height="504" alt="Untitled47_20260221193810" src="https://github.com/user-attachments/assets/203fa92d-c818-4e89-86c9-5e78987f3524" align="left"/>
 
 ⠀⠀⠀ ݃ ֪֪֪ ̣̣
 #  ׁ⠀#⠀BOUNDARIES
@@ -40,4 +42,4 @@ ships are fine!! as long as they aren't weird, problematic and forced on us.
 
 flirtig is a meh. as long as they are jokes! roleplays on the other hand.. please don't do that out of the blue. it's weird.. 
 
-check our rentry for more info, and maybe we can be friends too...? heh... follow our main!! I’m k, by the way! (im so sorry for all the times I've lost aura in front of everyone)
+check our rentry for more info, follow our main!! I’m k, by the way! (im so sorry for all the times I've lost aura in front of everyone)
