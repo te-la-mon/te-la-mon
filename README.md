@@ -1,16 +1,16 @@
-## Hi there 👋
+<img width="712" height="645"
+src="https://github.com/user-attachments/assets/02792f8f-23ab-440d-b8f9-3af325eda1cd"
+align="right"/>
 
-<!--
-**livor-mortis/livor-mortis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<br>
 
-Here are some ideas to get you started:
+<i>H e a v e n ' s d o o r s  
+are⠀⠀m i l e s⠀⠀away⠀ ׁ⠀⑅.⠀⠀ `1`6</i>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+𓂃𓂃◞ ᡣ𐭩 ◟𓂃𓂃⠀⠀⠀⠀⠀`S`ys
+
+<br>
+
+<i>'cause you're⠀⠀s t u c k  
+to the⠀⠀g r o u n d  
+you have to ⠀⠀s t a y.</i>
