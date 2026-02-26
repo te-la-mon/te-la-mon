@@ -5,7 +5,8 @@
 ⠀⠀⠀⠀⠀⠀<i>H e a v e n ' s d o o r s  
 ⠀⠀⠀⠀⠀⠀are⠀⠀m i l e s⠀⠀away⠀ ׁ⠀⑅.⠀⠀</i>
 
-`1`6⠀𓂃𓂃◞ ᡣ𐭩 ◟𓂃 `O`SDD-`1`B
+`1`6⠀𓂃𓂃◞ ᡣ𐭩 ◟𓂃 `C`-PTSD
+Trauma`g`enic `O`SDD-`1`B system
 
 <br>
 
