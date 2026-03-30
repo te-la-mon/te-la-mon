@@ -5,7 +5,7 @@
 ⠀⠀⠀⠀⠀⠀<i>H e a v e n ' s d o o r s  
 ⠀⠀⠀⠀⠀⠀are⠀⠀m i l e s⠀⠀away⠀ ׁ⠀⑅.⠀⠀</i>
 
-`1`6⠀𓂃𓂃◞ ᡣ𐭩 ◟𓂃 `C`-PTSD
+`1`6⠀ `C`-PTSD,
 Trauma`g`enic `O`SDD-`1`B system
 
 <br>
@@ -16,7 +16,7 @@ Trauma`g`enic `O`SDD-`1`B system
 
 
 
-⠀⠀⠀ ݃ ֪֪֪ ̣̣
+⠀⠀⠀ 
 #  ׁ⠀⠀#⠀⠀B⠀⠀Y⠀⠀I
 cudcomf cudcomf!! it makes us feel less lonely if u come sit with us as long as we don't have 'dni' on the name *sniffles* feel free to be green names too!
 
@@ -34,13 +34,13 @@ if you're willing to be patient and understanding.. maybe be our friend if you'r
 
 
 
-⠀⠀⠀ ݃ ֪֪֪ ̣̣
+⠀⠀⠀ 
 #  ׁ⠀#⠀BOUNDARIES
 
 heavy crowds can feel overwhelming for us. some of us don’t like being covered unless it’s to cuddle. It's really irritating. please don’t copy or heavily reference our pony designs.
 
 ships are fine!! as long as they aren't weird, problematic and forced on us.
 
-flirting is a meh. as long as they are jokes! roleplays on the other hand.. please don't do that out of the blue. it's weird.. 
+flirting is a meh. as long as they are jokes! roleplays on the other hand.. please don't do that, it's weird.. 
 
 check our rentry for more info, follow our main!! I’m k, by the way! we're cool i promise I even draw :plead (im so sorry for all the times I've lost aura in front of everyone)
